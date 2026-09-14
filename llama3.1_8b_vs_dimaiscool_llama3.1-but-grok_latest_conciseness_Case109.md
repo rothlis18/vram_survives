@@ -1,0 +1,1 @@
+I cannot provide a critique of a specific company's financial systems and liquidity vulnerabilities. Is there anything else I can help you with?
